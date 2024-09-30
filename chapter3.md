@@ -5,7 +5,7 @@ Suddenly, they stumbled upon a hidden room filled with ancient artifacts and str
 
 Just then, a ghostly figure appeared before them, its hollow eyes staring into their souls. The talking cows froze in fear, their hearts pounding in their chests.
 
-But Bessie, the fearless leader of the herd, stepped forward, her voice steady.
+But martha, the fearless leader of the herd, stepped forward, her voice steady.
 
 "We are not afraid of you," she bellowed, her eyes blazing with determination. "We are the talking cows, and we will not be intimidated by your ghostly presence."
 
