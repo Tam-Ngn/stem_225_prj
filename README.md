@@ -2,8 +2,8 @@
 
 # Cow's first Job Horror Story ← (replace this with your title)
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [Verisimilitude of the Cow](chapter1.md)
+- [Hope](chapter2.md)
+- [Through the Black](chapter3.md)
+- [Through the Stormfront](chapter4.md)
 

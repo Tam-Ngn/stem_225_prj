@@ -1,4 +1,4 @@
-# Chapter 3
+# Through the Black
 That night, the talking cows reported for duty, patrolling the mansion's dark and eerie corridors. As they made their rounds, they heard strange noises coming from the attic and the basement, sending shivers down their spines.
 
 Suddenly, they stumbled upon a hidden room filled with ancient artifacts and strange symbols. The air grew thick with a sense of dread as they realized they were not alone in the mansion.

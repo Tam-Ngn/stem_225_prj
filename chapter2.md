@@ -1,4 +1,4 @@
-# Chapter 2
+# Hope
 As they entered the bustling town, the talking cows were met with curious stares and whispers from the townspeople. But undeterred, they made their way to the local job fair, where they hoped to find employment.
 
 After hours of wandering through the fair, the talking cows finally stumbled upon a help-wanted sign at a creepy old mansion on the outskirts of town. The sign read: "Wanted: Night-time security guards. Must have a strong stomach and be willing to work in the dark."
