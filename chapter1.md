@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1 Pilot
 
 In a small town nestled in the rolling hills of the countryside, there lived a group of talking cows who were unlike any other. These cows could communicate with each other in human speech and even had their own unique personalities.
 
