@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4 Did Bessi get the job?
 To their surprise, the ghostly figure smiled, its ethereal form shimmering in the moonlight.
 
 "Congratulations, talking cows," the ghost said. "You have passed our test. You have shown courage and bravery in the face of fear, and for that, you shall be rewarded."
